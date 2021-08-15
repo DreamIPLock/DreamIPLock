@@ -1,0 +1,5 @@
+- 👋 Hello, we are Dream IP Lock
+- 👀 The owners are Slappe and Red
+- 🌱 The IP Lock system is currently in development!
+- 💞️ Join our discord! : https://discord.gg/hn6mbdDghP
+- 📫 How to reach us? make a ticket in our discord!
